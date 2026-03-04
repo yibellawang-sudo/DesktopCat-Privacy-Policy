@@ -1,0 +1,1 @@
+# DesktopCat-Privacy-Policy
